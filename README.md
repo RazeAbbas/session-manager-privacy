@@ -1,4 +1,4 @@
-# Session Manager - Privacy Policy
+#Privacy Policy
 
 ## Privacy Policy
 
